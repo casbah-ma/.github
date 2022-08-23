@@ -1,1 +1,3 @@
-![casbah logo](https://avatars.githubusercontent.com/u/108088088?s=256&v=4)
+The Casbah is a notion that translates our values: we draw inspiration from the character of our roots and push the threshold of the possible. A symbol of resistance, the Casbah stands as a proud witness of what was and what is to come. We embody this Casbah: A proof of endurance and persistence, of authenticity, beauty and safety. That is why we have chosen the name of "Casbah", because it defines everything we want to represent to ourselves and to our clients.
+
+We support territories and destinations development, through strategic, marketing, sales and product engineering. Through this mission, we have had the pleasure of working with several clients on different levels, whether it was to create the strategies and frameworks needed, assisting in the planning of said actions or by carrying their execution.
